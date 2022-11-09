@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/034901f696fe088456dab.jpg">
+  <img src="vhttps://te.legra.ph/file/034901f696fe088456dab.jpg">
 </p>
 
 # 🇪ᴠᴀ 🇷ᴏʙᴏᴛ [🇮🇳]
